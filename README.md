@@ -1,1 +1,1 @@
-pull an issue if u need help, i was too lazy to write the .MD file
+No longer being updated as of 9/27/2022
